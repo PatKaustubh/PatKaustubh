@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source AI projects, computer vision applications, and data-driven storytelling.
 
-📫 How to reach me: LinkedIn |
+📫 How to reach me: LinkedIn 
 
 😄 Pronouns: He/Him
 
